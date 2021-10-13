@@ -1,0 +1,3 @@
+- 👋 Hi, I’m form @teamcnvrz
+- 👀 I’m interested in building solutions.
+- 📫 How to reach me at teamcnvrz@gmail.com
